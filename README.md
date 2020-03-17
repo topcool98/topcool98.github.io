@@ -6,11 +6,11 @@
 
 # TOPCOOL98 BABYKIDZWEAR
 
-> Subtitle or Short Description Goes Here
+> Babykidzwear's Clothing and Fashion. Bringing the latest trend of fashion, we offer high quality dinner dress and work wear for young kids. Topcool98 aims to Redefine Online Shopping
 
-> ideally one sentence
+> Malaysia Online Shopping, babykidzwear, Fashion, Dress, Romper, Playsuit, Women, Men, Clothing, Boutique, Petite, Dinner Dress, Online Shop, Best, Free Shipping
 
-> include terms/tags that can be searched
+> Malaysia Online Shopping, babykidzwear, Fashion, Dress, Romper, Playsuit, Women, Men, Clothing, Boutique, Petite, Dinner Dress, Online Shop, Best, Free Shipping
 
 **Badges will go here**
 
